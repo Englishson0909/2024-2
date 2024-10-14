@@ -1,4 +1,4 @@
-*South Korean author Han Kang wins the 2024 Nobel prize in literature*
+**South Korean author Han Kang wins the 2024 Nobel prize in literature**
 
 Han, whose works include The Vegetarian, was praised for her ‘intense poetic prose that confronts historical traumas and exposes the fragility of human life’
 
